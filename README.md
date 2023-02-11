@@ -8,7 +8,7 @@
 
 💞️ I am a big fan of Tennis, Philosophy, Debating, Reading, Blogging, Poetry and FOSS.
 
-📫 You can reach out to me on [Twitter](https://twitter.com/aakash_kap) or [Mastodon](@aakash_kap@mastodon.online)
+📫 You can reach out to me on [LinkedIn](https://www.linkedin.com/in/aakash-kap)
 
 <!---
 meowkash/meowkash is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
